@@ -1,4 +1,4 @@
-# ROBLOX-Bookmark-Logger-leak
+# ROBLOX-Bookmark-Logger
 I've hit 3M+ in limiteds with this method, DM me on Discord for help. a;#2427
 
 So I've decided to sell this method after a while, this has never been leaked, as i have just started selling it.
